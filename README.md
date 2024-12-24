@@ -5,7 +5,7 @@
 " 𝐈 𝐰𝐢𝐬𝐡 𝐲𝐨𝐮 𝐰𝐨𝐮𝐥𝐝 𝐜𝐨𝐦𝐞 𝐨𝐯𝐞𝐫, 𝐨𝐯𝐞𝐫 "
     </p>
      <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/690869484633849870/1319938357807026186/Screen_Shot_2024-12-21_at_4.02.17_PM.png?ex=6767c7e3&is=67667663&hm=cc620def0a78c4147f893474064c7abf84b5c541aa44dac88d05223f3b3b30da&"/>
+  <img src="https://64.media.tumblr.com/4188101ed1755e2e8d46e78939f5e461/57f5db3d92a6b59a-9c/s2048x3072/e0015cc1bc02bee792c6aec72fb5a8ebd5deaac2.jpg"/>
     </p>
          <p align="center">
 " 𝐃𝐨𝐧'𝐭 𝐲𝐨𝐮 𝐤𝐧𝐨𝐰 𝐭𝐡𝐚𝐭 𝐈 𝐰𝐚𝐧𝐭 𝐲𝐨𝐮, 𝐰𝐚𝐧𝐭 𝐲𝐨𝐮? "
