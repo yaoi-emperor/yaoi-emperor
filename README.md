@@ -17,7 +17,7 @@
 ꜱᴏᴠᴇʀᴇɪɢɴɪᴛʏ⠀⠀.⠀⠀15- ᴅɴɪ (ᴜɴʟᴇꜱꜱ ꜰʀɪᴇɴᴅꜱ)
     </p>
            <p align="center">
-ᴏꜱᴅᴅ 1ʙ⠀⠀+⠀⠀ᴡᴏʀᴋɪɴɢ ᴄᴏʟʟᴇɢᴇ ꜱᴛᴜᴅᴇɴᴛ
+ᴏꜱᴅᴅ⠀⠀+⠀⠀studying 4 BS psychology
     </p>
    <p align="center">
   <img src="https://64.media.tumblr.com/1df9457d079752c42290950bdca24aa9/7cd90a123a18c333-30/s2048x3072/fd41a388e70d16f97ed0405e1cf37bb7baf4c44d.pnj"/>
